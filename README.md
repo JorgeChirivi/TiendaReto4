@@ -7,8 +7,8 @@ Jessica Linares   grupo 34       correo jekalinares1225@gmail.com
 
 Diana Marin       grupo 17-18    correo ingdemc@gmail.com
 
-Diana Gil         grupo 9-10
+Diana Gil         grupo 9-10     correo dmgilr@gmail.com
 
-Jorge Chirivi     grupo          correo georgechirivi@yahoo.com
+Jorge Chirivi     grupo 17-18    correo georgechirivi@yahoo.com
 
 Alexander Molina  grupo 21-22    correo molinamath50@gmail.com
